@@ -1,2 +1,2 @@
 # Fallout-4-Light-Tweaks
-Tweaks the Fallout 4 lights.
+https://www.nexusmods.com/fallout4/mods/2139/?
